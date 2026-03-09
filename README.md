@@ -1,5 +1,2 @@
-doin ur mom
-doin
-doin 
-ur 
-mom
+STAN BAD BUNNY!!!
+https://pbs.twimg.com/media/GsjHHeuXsAAdK3I.jpg
